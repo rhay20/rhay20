@@ -8,3 +8,11 @@
 
 ESTOU ESTREMAMENTE NERVOSA PARA A VIDA DE ADULTA E ESTUDANTE 😨
 
+
+
+
+## relatos
+
+![](https://media1.tenor.com/m/en1xVlC3tWoAAAAC/lawschool-studying.gif)
+
+uma menininha tentando estudar física, PARECE EU 
